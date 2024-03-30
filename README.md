@@ -1,1 +1,1 @@
-# -NG-D-NG-L-P-M-PLAYFAIR
+Xay dung giao dien lap ma playfair
